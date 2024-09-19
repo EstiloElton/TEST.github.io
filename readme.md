@@ -16,6 +16,8 @@ SCANDAL NI KENZO:
 
 SCANDAL NI VICENTE:
 
+![Discord Logo](https://cdn.discordapp.com/attachments/1285610041994641445/1286139938881929236/IMG_7088.png?ex=66ecd2a8&is=66eb8128&hm=ac146d963ff46743fc906cd6254c9ca0d98e1d19a32fea4aa657eab40562dc5d&)
+
 ![Discord Logo](https://cdn.discordapp.com/attachments/1285610041994641445/1285926273377370183/image.png?ex=66ec0baa&is=66eaba2a&hm=728a5dcd71cf0eb63b3fa62d516a673b61acd678e799cbdb8c0ce71cd9bf6123&)
 
 ![Discord Logo](https://cdn.discordapp.com/attachments/1285610041994641445/1286139666835439658/Messenger_creation_AB5A0947-6985-4862-9767-4025F05F938B.png?ex=66ecd267&is=66eb80e7&hm=c9d3b0a9aa88a373814e27726b5b31c8eb8c0df7aa1d054795d35a5aabe64db4&)
@@ -31,6 +33,8 @@ SCANDAL NI PAULO
 # JORELL
 
 SCANDAL NI JORELL:
+
+![Discord Logo](https://cdn.discordapp.com/attachments/1285610041994641445/1286142030548045845/49CB8995-229E-4BDC-8E35-6FD62E7ADECB.png?ex=66ecd49b&is=66eb831b&hm=f5f34215f3bf0dae741178146eeb74c2c503eb9181356da9b06f30ae87ea3d34&)
 
 ![Disocrd Logo](https://cdn.discordapp.com/attachments/1285610041994641445/1286142031500152904/4DC35F64-D428-43F7-A342-94FC9AA2FB8B.jpg?ex=66ecd49b&is=66eb831b&hm=b22e2ed3093c301bb232fde287f94765e012e9559aa3d99d0c8d1524c752df47&)
 

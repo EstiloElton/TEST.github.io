@@ -12,4 +12,6 @@ SCANDAL NI KENZO:
 
 # VICENTE
 
+SCANDAL NI VICENTE:
+
 ![Discord Logo](https://cdn.discordapp.com/attachments/1285610041994641445/1285926273377370183/image.png?ex=66ec0baa&is=66eaba2a&hm=728a5dcd71cf0eb63b3fa62d516a673b61acd678e799cbdb8c0ce71cd9bf6123&)

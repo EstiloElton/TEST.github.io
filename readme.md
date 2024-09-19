@@ -8,6 +8,8 @@ PAGKIKITA NG MGA SCANDAL NG KUPALS
 
 SCANDAL NI KENZO:
 
+![Discord Logo](https://cdn.discordapp.com/attachments/1285610041994641445/1286137282503380994/image.png?ex=66ecd02f&is=66eb7eaf&hm=d74ca3a0530e871d61425db60e84b30c6e4e9f7522e68b770cd67166ffb88deb&)
+
 ![Discord Logo](https://cdn.discordapp.com/attachments/1285610041994641445/1286128224828522507/460337744_1053887893132128_7476203277579875640_n.png?ex=66ecc7bf&is=66eb763f&hm=4e6e9ead22a1c896eccd3d288fb7a0a295627ecad231274404657c8bb8baf512&)
 
 # VICENTE
@@ -15,6 +17,8 @@ SCANDAL NI KENZO:
 SCANDAL NI VICENTE:
 
 ![Discord Logo](https://cdn.discordapp.com/attachments/1285610041994641445/1285926273377370183/image.png?ex=66ec0baa&is=66eaba2a&hm=728a5dcd71cf0eb63b3fa62d516a673b61acd678e799cbdb8c0ce71cd9bf6123&)
+
+![Discord Logo](https://cdn.discordapp.com/attachments/1285610041994641445/1286139666835439658/Messenger_creation_AB5A0947-6985-4862-9767-4025F05F938B.png?ex=66ecd267&is=66eb80e7&hm=c9d3b0a9aa88a373814e27726b5b31c8eb8c0df7aa1d054795d35a5aabe64db4&)
 
 # PAULO
 

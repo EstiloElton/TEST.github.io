@@ -8,6 +8,8 @@ PAGKIKITA NG MGA SCANDAL NG KUPALS
 
 SCANDAL NI KENZO:
 
+https://github.com/user-attachments/assets/b5c6260d-dd4a-4972-95df-4249914e6fd3
+
 ![Discord Logo](https://cdn.discordapp.com/attachments/1285610041994641445/1286137282503380994/image.png?ex=66ecd02f&is=66eb7eaf&hm=d74ca3a0530e871d61425db60e84b30c6e4e9f7522e68b770cd67166ffb88deb&)
 
 ![Discord Logo](https://cdn.discordapp.com/attachments/1285610041994641445/1286128224828522507/460337744_1053887893132128_7476203277579875640_n.png?ex=66ecc7bf&is=66eb763f&hm=4e6e9ead22a1c896eccd3d288fb7a0a295627ecad231274404657c8bb8baf512&)

@@ -37,7 +37,7 @@ SCANDAL NI VICENTE:
 
 SCANDAL NI PAULO
 
-<img src="https://github.com/EstiloElton/test2.github.io/blob/main/image.png?raw=true" alt="kenzobriphindisponsored">
+<img src="https://github.com/EstiloElton/test2.github.io/blob/main/459844296_2551807671681128_5540785220415951575_n%20(1).jpg?raw=true" alt="BOMBASTIKSIDEYE">
 
 <img src="https://github.com/EstiloElton/test2.github.io/blob/main/image.png?raw=true" alt="kenzobriphindisponsored">
 

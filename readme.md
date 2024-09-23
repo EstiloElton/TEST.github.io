@@ -1,5 +1,7 @@
 # PALAGAYDAW
 
+<img src="https://github.com/EstiloElton/test2.github.io/blob/main/458578565_1055958962570167_738563286422416209_n.jpg?raw=true" alt="kontinentalpakyu">
+
 PAGKIKITA NG MGA SCANDAL NG KUPALS
 
 ## MGA SCANDAL NG MGA KUPAL

@@ -17,8 +17,6 @@ SCANDAL NI KENZO:
   Your browser does not support the video tag.
 </video>
 
-https://github.com/user-attachments/assets/b5c6260d-dd4a-4972-95df-4249914e6fd3
-
 <img src="https://github.com/EstiloElton/test2.github.io/blob/main/image.png?raw=true" alt="kenzobriphindisponsored">
 
 <img src="https://github.com/EstiloElton/test2.github.io/blob/main/image.png?raw=true" alt="kenzobriphindisponsored">

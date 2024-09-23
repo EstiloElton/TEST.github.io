@@ -25,11 +25,11 @@ https://github.com/user-attachments/assets/b5c6260d-dd4a-4972-95df-4249914e6fd3
 
 SCANDAL NI VICENTE:
 
-<img src="https://github.com/EstiloElton/test2.github.io/blob/main/image.png?raw=true" alt="kenzobriphindisponsored">
+<img src="https://github.com/EstiloElton/test2.github.io/blob/main/457630375_518895251097024_6092384494066612367_n.jpg?raw=true" alt="vicentebj">
 
-<img src="https://github.com/EstiloElton/test2.github.io/blob/main/image.png?raw=true" alt="kenzobriphindisponsored">
+<img src="https://github.com/EstiloElton/test2.github.io/blob/main/458568332_916564940288570_523501116129610580_n.jpg?raw=true" alt="vicentesumubo">
 
-<img src="https://github.com/EstiloElton/test2.github.io/blob/main/image.png?raw=true" alt="kenzobriphindisponsored">
+<img src="https://github.com/EstiloElton/test2.github.io/blob/main/460141978_3729766187240500_4757205493074240560_n.jpg?raw=true" alt="vicentexlee">
 
 # PAULO
 
@@ -39,13 +39,15 @@ SCANDAL NI PAULO
 
 <img src="https://github.com/EstiloElton/test2.github.io/blob/main/image.png?raw=true" alt="kenzobriphindisponsored">
 
+<img src="https://github.com/EstiloElton/test2.github.io/blob/main/460175763_534390542300218_3095806430192151072_n.jpg?raw=true" alt="kenzobriphindisponsored">
+
 # JORELL
 
 SCANDAL NI JORELL:
 
-<img src="https://github.com/EstiloElton/test2.github.io/blob/main/image.png?raw=true" alt="kenzobriphindisponsored">
+<img src="https://github.com/EstiloElton/test2.github.io/blob/main/456389115_8228892840521001_2348507443310782195_n.jpg?raw=true" alt="Jorelljojopose">
 
-<img src="https://github.com/EstiloElton/test2.github.io/blob/main/image.png?raw=true" alt="kenzobriphindisponsored">
+<img src="https://github.com/EstiloElton/test2.github.io/blob/main/458300965_370655736108561_3550762297648589468_n.jpg?raw=true" alt="jorellgoodboy">
 
 <img src="https://github.com/EstiloElton/test2.github.io/blob/main/image.png?raw=true" alt="kenzobriphindisponsored">
 

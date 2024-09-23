@@ -31,6 +31,8 @@ SCANDAL NI VICENTE:
 
 <img src="https://github.com/EstiloElton/test2.github.io/blob/main/460141978_3729766187240500_4757205493074240560_n.jpg?raw=true" alt="vicentexlee">
 
+<img src="https://github.com/EstiloElton/test2.github.io/blob/main/460175763_534390542300218_3095806430192151072_n.jpg?raw=true" alt="kenzobriphindisponsored">
+
 # PAULO
 
 SCANDAL NI PAULO
@@ -38,8 +40,6 @@ SCANDAL NI PAULO
 <img src="https://github.com/EstiloElton/test2.github.io/blob/main/image.png?raw=true" alt="kenzobriphindisponsored">
 
 <img src="https://github.com/EstiloElton/test2.github.io/blob/main/image.png?raw=true" alt="kenzobriphindisponsored">
-
-<img src="https://github.com/EstiloElton/test2.github.io/blob/main/460175763_534390542300218_3095806430192151072_n.jpg?raw=true" alt="kenzobriphindisponsored">
 
 # JORELL
 
